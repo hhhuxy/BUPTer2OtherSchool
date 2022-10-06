@@ -9,7 +9,7 @@
 | 1.md                                   | 自所 njucs pkucs zjucs 计算所vipl    | hxy666@bupt.edu.cn   |
 | https://zhuanlan.zhihu.com/p/566301534 | thu贵系，thusz, 高瓴, sjtu, 自动化所 |                      |
 | https://zhuanlan.zhihu.com/p/570332573 | 自所、计算所、哈深、浙大、北航       |                      |
-|                                        |                                      |                      |
+| https://zhuanlan.zhihu.com/p/570920717 | 中山,东南,国科大计院,浙大计院 |                      |
 |                                        |                                      |                      |
 |                                        |                                      |                      |
 
